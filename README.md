@@ -3,7 +3,7 @@
 
 ##Schnell Messer in ze house yaaaaaaaaa!!!
 
-![alt tag](http://go-grafix.com/data/wallpapers/25/journey-590855-1920x1080-hq-dsk-wallpapers.png)
+![Journey](http://go-grafix.com/data/wallpapers/25/journey-590855-1920x1080-hq-dsk-wallpapers.png)
 
 *I traveled through seven levels just to get to the mountain and become enlightened.*
 
