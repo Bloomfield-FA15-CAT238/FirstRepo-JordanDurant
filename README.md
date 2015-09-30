@@ -4,11 +4,12 @@
 ##Schnell Messer in ze house yaaaaaaaaa!!!
 
 
+![Journey](http://occidentalweekly.com/wp-content/uploads/2015/02/2204681-vlcsnap_2012_05_11_19h58m37s41.png)
 
 *I traveled through seven levels just to get to the mountain and become enlightened.*
 
 **Upon becoming enlightened I turned into _space_ _dust_.**
-![Journey](http://go-grafix.com/data/wallpapers/25/journey-590855-1920x1080-hq-dsk-wallpapers.png)
+
 
 In the words of arpegius vintoras:
 >Winter is coming
@@ -35,4 +36,4 @@ juan = deag
 mendokuse= uhh yeah
 what is that thing
 ```
-:impe: :rage3:
+:imp: :rage3:
