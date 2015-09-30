@@ -27,7 +27,7 @@ In the words of arpegius vintoras:
 3. The dandy guy in space
   1. so much plot 
 
-Here's an idea: why don't we make `Hideo Kojima` to start the development developent of `Zone of the Enders 3` now
+Here's an idea: why don't we make `Hideo Kojima` to start the development of `Zone of the Enders 3` now
 
 Check this out
 
