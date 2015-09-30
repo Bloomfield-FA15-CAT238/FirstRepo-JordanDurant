@@ -3,11 +3,11 @@
 
 ##Schnell Messer in ze house yaaaaaaaaa!!!
 
-![Journey](http://go-grafix.com/data/wallpapers/25/journey-590855-1920x1080-hq-dsk-wallpapers.png)
-
 *I traveled through seven levels just to get to the mountain and become enlightened.*
 
 **Upon becoming enlightened I turned into _space_ _dust_.**
+
+![Journey](http://go-grafix.com/data/wallpapers/25/journey-590855-1920x1080-hq-dsk-wallpapers.png)
 
 In the words of arpegius vintoras:
 >Winter is coming
