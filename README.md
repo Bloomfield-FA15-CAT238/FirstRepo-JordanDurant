@@ -7,6 +7,7 @@
 
 **Upon becoming enlightened I turned into _space_ _dust_.**
 
+![alt tag](http://go-grafix.com/data/wallpapers/25/journey-590855-1920x1080-hq-dsk-wallpapers.png)
 In the words of arpegius vintoras:
 >Winter is coming
 
